@@ -1,1 +1,0 @@
-# Laboratornai-4-Plotnikov-P.S.-BSU1801
